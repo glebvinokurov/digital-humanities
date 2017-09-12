@@ -3,6 +3,7 @@ I was born and raised in Ulyanovsk, Russia. I studied Literature at St. Petersbu
 # My Research
 Women Writers in Russian Literature of The First Half of Nineteenth
 Century (1790-1840).
+
 The works of women writers of the first half of the nineteenth century
 were often disregarded by their contemporary critics and are largely
 forgotten nowadays. Meanwhile, this period was essential for the
