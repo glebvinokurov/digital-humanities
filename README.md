@@ -1,3 +1,4 @@
+![My picture](https://github.com/glebvinokurov/digital-humanities/blob/master/16114842_10212312521714637_100635992109275171_n.jpg)
 # Bio
 I was born and raised in Ulyanovsk, Russia. I studied Literature at St. Petersburg State University in Russia and Bard College in New York. I worked as a Russian language tutor for several years, and then -- as a teaching assistant at Reed College, Oregon in 2016-2017 academic year. I am currently in the first year of my MA in Russian Studies at McGill.
 # My Research
