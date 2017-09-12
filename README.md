@@ -19,3 +19,4 @@ by men? What motivated men’s criticism on women’s writing? What
 did it mean to be a female writer in the first half of nineteenth
 century?
 # My Objectives
+So far, I've had very limited (if any) experience working with the digital humanities. However, in my previous research projects, I could often notice those limitations, never being able to overcome them for the lack of tools that I would know how to use effectively and appropriately. In this course, I hope to acquire new skills that will allow me to take my research to a new level; I am excited about new challenges and experiments.
